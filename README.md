@@ -9,4 +9,8 @@
 - ⚡ Fun fact: I love to watch anime, currently watching one piece(ping me if you also love one piece)(¬‿¬)👀
 
 
-![orewa monkey d luffy](https://tenor.com/view/luffy-strawhat-ep996-mugiwara-mugiwaro-no-luffy-gif-23564182)
+
+
+
+
+![ezgif com-gif-maker](https://user-images.githubusercontent.com/53397527/181344640-8f91f7e0-d87c-4185-89e8-35c44f1b5d0d.gif)
