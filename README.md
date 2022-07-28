@@ -8,6 +8,8 @@
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I love to watch anime, currently watching one piece(ping me if you also love one piece)(¬‿¬)👀
 
+<b>Also Dont forget to check my projects below😎
+
 
 
 
